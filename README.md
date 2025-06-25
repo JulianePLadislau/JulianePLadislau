@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Juliane P. Ladislau
+# 👩🏻‍💻 Juliane Ladislau
 
 **`Estudante de Análise e Desenvolvimento de Sistemas`**
 
